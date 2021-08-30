@@ -16,3 +16,5 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 8/24/2021 Exicited about coding today! I am going to work on some coding before class. So wednesday, thursday, and friday will be off days from coding camp! Come next Monday it will be time to buckle down. I am going to continue my coding journey and repositories so i can continue getting my green squares!
 
 8/25/2021 When I am am having trouble on freecodecamp, I find that if I Google the problem that I can find help on a forum. That's if the hint section doesn't clarify it for me.
+
+8/30/2021 First day OFFICIALY, super excited, my instructor is cool too! 
