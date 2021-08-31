@@ -18,3 +18,5 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 8/25/2021 When I am am having trouble on freecodecamp, I find that if I Google the problem that I can find help on a forum. That's if the hint section doesn't clarify it for me.
 
 8/30/2021 First day OFFICIALY, super excited, my instructor is cool too! 
+
+8/31/2021 I created a clock! What's next?
