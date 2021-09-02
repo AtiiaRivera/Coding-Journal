@@ -20,4 +20,7 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 8/30/2021 First day OFFICIALY, super excited, my instructor is cool too! 
 
 8/31/2021 I created a clock! What's next?
+
 9/01/2021 My homework lastnight was to hack a caculator, i did it while I was in class. Sort of an overachiever. I recreated it, changed the coors, and changed it from numbers to letters that spelled my name.I am in class right now. Update tomorrow. Peace. 
+
+9/02/2021 Hacked a caculator, hacked google, and I recreated a login! Work hunty!
