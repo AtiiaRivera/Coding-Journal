@@ -28,3 +28,5 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 09/07/2021 Working on a website! 
 
 09/13/2021 Codiiiiing today! Two homework assignment due!
+
+09/20/20 Made a couple of websites! Becoming a decent hacker.
