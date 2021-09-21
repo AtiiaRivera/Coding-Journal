@@ -30,3 +30,5 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 09/13/2021 Codiiiiing today! Two homework assignment due!
 
 09/20/20 Made a couple of websites! Becoming a decent hacker.
+
+09/20/21 ctrl+shit+n= New branch, ctrl+shit+a= Edit a file, ctrl+p= Publish
