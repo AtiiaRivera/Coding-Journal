@@ -25,10 +25,13 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 
 9/02/2021 Hacked a caculator, hacked google, and I recreated a login! Work hunty!
 
-09/07/2021 Working on a website! 
+9/07/2021 Working on a website! 
 
-09/13/2021 Codiiiiing today! Two homework assignment due!
+9/13/2021 Codiiiiing today! Two homework assignment due!
 
-09/20/20 Made a couple of websites! Becoming a decent hacker.
+9/20/20 Made a couple of websites! Becoming a decent hacker.
 
 09/20/21 ctrl+shit+n= New branch, ctrl+shit+a= Edit a file, ctrl+p= Publish
+
+9/29/2021 Okay. I've been uploading shit on here, diff websites, and "accomplishments". I still feel like I could do better and NO this isn't good enough! Well so far it's going okay. "Good" actually. I'm making a decent grade! Still don't know if I've found the language I'm passionate about, I'm getting familiar with all of them though. Well Java, CSS, HTML. Haven't even attempted Python yet, but this is what I'm doing. LOL is anybody even reading this..??? Anyways. It's going so so, I want to continue to learn. I am very willing. The hardest part this far is not comparing myself to others and their progress. I'm actively tring to focus on my own progress. Haha mind ya bizness. Doesn't matter how cute you are, how well you speak, or what that booty do. What that code look like? I'm stupid! Anyways good day people, I said good day! 
+
