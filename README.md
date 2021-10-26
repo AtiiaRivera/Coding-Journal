@@ -29,7 +29,9 @@ Watched this video! https://youtu.be/HpiKJN4C1-c Aaron Reed is coming on Monday!
 
 9/13/2021 Codiiiiing today! Two homework assignment due!
 
-9/20/20 Made a couple of websites! Becoming a decent hacker.
+9/20/21 Made a couple of websites! Becoming a decent hacker.
+
+10/26/21 Getting better at coding, enjoying the design piece. I love creating, really watching something come together and grow, that's what makes me feel good! That's what I enjoy about this. I am creative. I am created. I am creator. I am an artist at this second language. (: Thats what I ennjoy. Stay tuned for my next master piece!
 
 09/20/21 ctrl+shit+n= New branch, ctrl+shit+a= Edit a file, ctrl+p= Publish
 
